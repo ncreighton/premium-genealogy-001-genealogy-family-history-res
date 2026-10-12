@@ -1,0 +1,2 @@
+# premium-genealogy-001-genealogy-family-history-res
+Tired of juggling 15 browser tabs, scattered notes, and half-filled census records? Your family history deserves a single, organized command center.  The Genealogy &amp; Family History Research Notion Template transforms your chaotic research into a structured, searchable database. It’s not just a family tree—it’s a full research project manager that t
